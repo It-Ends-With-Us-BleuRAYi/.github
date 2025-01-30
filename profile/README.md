@@ -3,7 +3,7 @@
 
 ## Overview
 
-**"It Ends With Us"** is an upcoming romantic drama film based on the bestselling novel by Colleen Hoover. The book, which was originally published in 2016, became a global sensation due to its emotionally charged narrative and realistic portrayal of love, heartbreak, and personal growth. The announcement of its film adaptation has sparked excitement among fans worldwide, as the movie promises to bring this compelling story to life on the big screen.
+17 sec ago - **"It Ends With Us"** is an upcoming romantic drama film based on the bestselling novel by Colleen Hoover. The book, which was originally published in 2016, became a global sensation due to its emotionally charged narrative and realistic portrayal of love, heartbreak, and personal growth. The announcement of its film adaptation has sparked excitement among fans worldwide, as the movie promises to bring this compelling story to life on the big screen.
 
 ## Synopsis
 
